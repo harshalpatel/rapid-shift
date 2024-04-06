@@ -1,1 +1,3 @@
-# Introduction
+# Rapid Shift Corp
+
+## Introduction
